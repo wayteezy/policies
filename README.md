@@ -245,5 +245,6 @@ These policies outline the company's commitment to environmental sustainability 
 
 #### Employees who do not comply with these policies will be subject to disciplinary action. The management reserves the right to make changes to this policy as necessary.
 
+ -------------------------
 
 > Last Updated: February 5, 2023
